@@ -28,3 +28,5 @@
 3. Winner and runner-up Your Picks 
 4. Pick your team selecting the Best 11 players based on their positions, 3 years performance data and additional research 
 5. Pick your top 3 all-rounders
+
+YOU CAN CHECK MY DASHBOARD HERE [IPL DASHBOARD](https://www.novypro.com/project/ipl-performance-analysis-2021-2023---insights-and-prediction)

@@ -30,3 +30,8 @@
 5. Pick your top 3 all-rounders
 
 YOU CAN CHECK MY DASHBOARD HERE [IPL DASHBOARD](https://www.novypro.com/project/ipl-performance-analysis-2021-2023---insights-and-prediction)
+
+![Uploading PAGE 1.png…]()
+
+
+

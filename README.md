@@ -31,7 +31,8 @@
 
 YOU CAN CHECK MY DASHBOARD HERE [IPL DASHBOARD](https://www.novypro.com/project/ipl-performance-analysis-2021-2023---insights-and-prediction)
 
-![Uploading PAGE 1.png…]()
+![PAGE 1](https://github.com/nitish4393/IPL-PERFORMANCE-ANALYSIS-2021-2023---INSIGHT-AND-PREDICTION/assets/120879393/225aeb46-7c72-4a33-a884-da79ecf94616)
+
 
 
 
